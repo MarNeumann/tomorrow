@@ -1,0 +1,6 @@
+---
+title: "2005"
+---
+>Sunday August 14, 2005 – a magical date in the history of Tomorrowland. A brand new festival popped up, transforming the town of Boom into a fairy tale dominion, where enchanting electronic music was to be heard from behind every tree and out of every rabbit hole. From the start Tomorrowland turned out to be a grand spectacle, unlike anything that came before it. But this was only the beginning of our fairy tale... About 10,000 people bore witness to the first edition of Tomorrowland, and to the magic that surrounded it (including DJ sets by Sven Väth, Sasha, Armin van Buuren, Erol Alkan and Justice).
+(tomorrowland.com)
+
