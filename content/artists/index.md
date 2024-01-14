@@ -1,3 +1,3 @@
 ---
-title: Companies
+title: Artists
 ---

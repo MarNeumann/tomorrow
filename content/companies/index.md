@@ -1,3 +1,3 @@
 ---
-tit: Companies
+title: Companies
 ---
